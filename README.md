@@ -1,2 +1,2 @@
-Dupla: Vinicius Lopes do Nascimento
+Dupla: Vinicius Lopes do Nascimento|
        Rodrigo de Almeida Machado Barbosa
